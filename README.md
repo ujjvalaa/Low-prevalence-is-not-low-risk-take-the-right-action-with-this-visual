@@ -1,4 +1,4 @@
-**Disease Prevalence and Risk Analysis**
+**Lower prevalence rate is not low risk, let us take the right action**
 ![image](https://github.com/user-attachments/assets/38fbd249-3ca9-402e-809e-a8093b106164)
 
 
